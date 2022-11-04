@@ -6,8 +6,8 @@
 **Telegram:** [Freddy Krueger](https://t.me/sh_s_sh_96)<br>
 **Email:** [RikkiMonti](https://rikkimonti@gmail.com)<br>
 **LinkedIn:** [Sitora Shovkatova](https://www.linkedin.com/in/sitora-shovkatova-24897a235/)<br>
-**Discord:** Rikki Monti#5041
-**Instagram:**[Rikki Monti](https://www.instagram.com/rikkimonti96/) 
+**Discord:** Rikki Monti#5041<br>
+**Instagram:** [Rikki Monti](https://www.instagram.com/rikkimonti96/) 
 
 ---
 
