@@ -7,6 +7,7 @@
 **Email:** [RikkiMonti](https://rikkimonti@gmail.com)<br>
 **LinkedIn:** [Sitora Shovkatova](https://www.linkedin.com/in/sitora-shovkatova-24897a235/)<br>
 **Discord:** Rikki Monti#5041
+**Instagram:**[Rikki Monti](https://www.instagram.com/rikkimonti96/) 
 
 ---
 
